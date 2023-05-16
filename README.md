@@ -1,2 +1,2 @@
 # panda-m7
-https://www.youtube.com/watch?v=-mzbYccpBvc
+ lin-yt: https://www.youtube.com/watch?v=-mzbYccpBvc
